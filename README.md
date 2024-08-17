@@ -41,3 +41,6 @@ iOS gods 	iOS 12 - iOS 13
 iOSgd downloadlin	app.iosgods.com
 Apvaly downloadlin	https://iospack.com/stores/appvalley/install/
 Without jailbreak 	
+
+scarlet ios 13 - ios 18.1
+dwnl link usescarlet.com
